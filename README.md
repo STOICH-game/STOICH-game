@@ -26,7 +26,9 @@ Contact Information
 For support requests, feedback, or questions, please contact:
 
 Email: thestoichgame@gmail.com
+
 Privacy Policy
+
 STOICH respects your privacy and does not collect personal information. For full details, please view our Privacy Policy.
 
 © 2025 Jordan Safran. All rights reserved.
